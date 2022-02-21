@@ -1,1 +1,1 @@
-# HUAWEI-Arge-Bulusmasi-100.Yil
+# HUAWEI AR-GE Buluşması -  100 Yıl Üniversitesi
